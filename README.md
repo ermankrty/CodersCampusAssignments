@@ -1,2 +1,0 @@
-# ermankurtay-assignment-1
- 
